@@ -1,0 +1,1 @@
+# SENAC_pratica-UC-ALGORITMO-19.03.2026
